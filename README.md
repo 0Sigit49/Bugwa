@@ -1,0 +1,2 @@
+# Bugwa
+Bug wa orang 
